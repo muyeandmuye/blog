@@ -6,3 +6,7 @@ http://muyeandmuy.com
 而不是各种山寨，各种模仿，然后再国外流行几年，被复制到中国。
 在这样的环境，如何拥有互联网的创新精神，如何拥有share的精神，如何拥有geek的精神。
 为了这一点，英语神马的，我忍了。我能做到。
+****
+##blog like a geek。
+*****
+### To be someone really becautiful
